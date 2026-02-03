@@ -1,4 +1,4 @@
-## Hi there 👋
+## ![charlie-morningstar](https://github.com/user-attachments/assets/88a0dfeb-d7a3-4503-bebf-c0ddb14dbb8e)
 
 <!--
 **hatsunekittyy/hatsunekittyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

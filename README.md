@@ -5,7 +5,7 @@
 <p align="center">
 $\color{#E0B9C3}{\textsf{੭ ֹ ̣̣ㅤhatsune (≡▽≡*) georgia𓐇˚𓈒 ♡}}$
 <p align="center">
-$\color{#E0B9C3}{\textsf{✚⏖ㅤageteen𓏲ּ𝄢bisexual ༅ 𓈒}}$
+$\color{#E0B9C3}{\textsf{✚⏖13thjuly𓏲ּ𝄢bisexual ༅ 𓈒}}$
 <p align="center">
 $\color{#E0B9C3}{\textsf{𐙚ㅤinfoㅤmbti infoㅤ태형 3ㅤ✿𓈒ॱ}}$
 <p align="center">

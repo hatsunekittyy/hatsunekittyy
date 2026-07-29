@@ -13,7 +13,7 @@ $\color{#E0B9C3}{\textsf{𐙚ㅤinfoㅤmbti infoㅤ태형 3ㅤ✿𓈒ॱ}}$
 <p align="center">
 $\color{#E0B9C3}{\textsf{(˶˃ ᵕ ˂˶)ㅤ°ㅤinfo ++ infoㅤʔㅤ°ㅤ．ྀི︶꒱}}$
 <p align="center">
-$\color{#E0B9C3}{\textsf{‿◞ ֪ ♡ㅤ( she / herㅤɞɞ xtra infoㅤ)}}$
+$\color{#E0B9C3}{\textsf{‿◞ ֪ ♡ㅤ( she / herㅤɞɞ cisfemale)}}$
 <p align="center">
 $\color{#E0B9C3}{\textsf{݄݊ ঌㅤinfo info —— info infoㅤinfoㅤ ࡛ ♡}}$
 <p align="center">

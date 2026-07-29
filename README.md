@@ -5,7 +5,7 @@
 <p align="center">
 $\color{#E0B9C3}{\textsf{੭ ֹ ̣̣ㅤhatsune (≡▽≡*) georgia𓐇˚𓈒 ♡}}$
 <p align="center">
-$\color{#E0B9C3}{\textsf{✚ ⏖ㅤageteenㅤ𓏲ּ𝄢bisexualㅤ ༅ 𓈒}}$
+$\color{#E0B9C3}{\textsf{✚ ⏖ㅤageteenㅤ𓏲ּ𝄢bisexual ༅ 𓈒}}$
 <p align="center">
 $\color{#E0B9C3}{\textsf{𐙚ㅤinfoㅤmbti infoㅤ태형 3ㅤ✿𓈒ॱ}}$
 <p align="center">
@@ -13,7 +13,7 @@ $\color{#E0B9C3}{\textsf{𐙚ㅤinfoㅤmbti infoㅤ태형 3ㅤ✿𓈒ॱ}}$
 <p align="center">
 $\color{#E0B9C3}{\textsf{(˶˃ ᵕ ˂˶)ㅤ°ㅤinfo ++ infoㅤʔㅤ°ㅤ．ྀི︶꒱}}$
 <p align="center">
-$\color{#E0B9C3}{\textsf{‿◞ ֪ ♡ㅤ( she / herɞɞ cisfemale)}}$
+$\color{#E0B9C3}{\textsf{‿◞ ֪ ♡ㅤ( she/her ɞɞ cisfemale)}}$
 <p align="center">
 $\color{#E0B9C3}{\textsf{݄݊ ঌㅤinfo info —— info infoㅤinfoㅤ ࡛ ♡}}$
 <p align="center">

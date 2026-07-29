@@ -3,7 +3,7 @@
 <a href="https://freeimage.host/i/CvjEkOJ"><img src="https://iili.io/CvjEkOJ.md.jpg" alt="CvjEkOJ.md.jpg" border="0"></a>
 </p>
 <p align="center">
-$\color{#E0B9C3}{\textsf{੭ ֹ ̣̣ㅤhatsune (≡▽≡*) georgia𓐇˚𓈒 ♡}}$
+$\color{#E0B9C3}{\textsf{੭ ֹ ̣̣ㅤhatsune₊‧꒰ა♡໒꒱ ‧₊georgia𓐇˚𓈒 ♡}}$
 <p align="center">
 $\color{#E0B9C3}{\textsf{✚⏖13thjuly𓏲ּ𝄢bisexual ༅ 𓈒}}$
 <p align="center">

@@ -3,7 +3,7 @@
 <a href="https://freeimage.host/i/CvjEkOJ"><img src="https://iili.io/CvjEkOJ.md.jpg" alt="CvjEkOJ.md.jpg" border="0"></a>
 </p>
 <p align="center">
-$\color{#E0B9C3}{\textsf{੭ ֹ ̣̣ㅤnameㅤ(≡▽≡*)oㅤnameㅤ𓐇˚𓈒 ♡}}$
+$\color{#E0B9C3}{\textsf{੭ ֹ ̣̣ㅤhatsuneㅤ(≡▽≡*)oㅤgeorgia𓐇˚𓈒 ♡}}$
 <p align="center">
 $\color{#E0B9C3}{\textsf{✚ ⏖ㅤageteenㅤ𓏲ּ𝄢ㅤsexualityㅤ ༅ 𓈒}}$
 <p align="center">
@@ -13,7 +13,7 @@ $\color{#E0B9C3}{\textsf{𐙚ㅤinfoㅤmbti infoㅤ태형 3ㅤ✿𓈒ॱ}}$
 <p align="center">
 $\color{#E0B9C3}{\textsf{(˶˃ ᵕ ˂˶)ㅤ°ㅤinfo ++ infoㅤʔㅤ°ㅤ．ྀི︶꒱}}$
 <p align="center">
-$\color{#E0B9C3}{\textsf{‿◞ ֪ ♡ㅤ(ㅤprn / prnㅤɞɞㅤxtra infoㅤ)}}$
+$\color{#E0B9C3}{\textsf{‿◞ ֪ ♡ㅤ( she / herㅤɞɞ xtra infoㅤ)}}$
 <p align="center">
 $\color{#E0B9C3}{\textsf{݄݊ ঌㅤinfo info —— info infoㅤinfoㅤ ࡛ ♡}}$
 <p align="center">

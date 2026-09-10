@@ -15,6 +15,6 @@ $\color{#E0B9C3}{\textsf{(˶˃ ᵕ ˂˶)ㅤ° bunnii + nekomimi !ㅤ°ㅤ．ྀ�
 <p align="center">
 $\color{#E0B9C3}{\textsf{‿◞ ֪ ♡ she/her ɞɞ cisfemale }}$
 <p align="center">
-$\color{#E0B9C3}{\textsf{݄݊ ঌ will eventually make rentry with more info ࡛ ♡}}$
+$\color{#E0B9C3}{\textsf{݄݊ ঌwill eventually make a rentry with more info ࡛ ♡}}$
 <p align="center">
 <a href="https://freeimage.host/i/Cvjajst"><img src="https://iili.io/Cvjajst.md.jpg" alt="Cvjajst.md.jpg" border="0"></a>

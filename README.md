@@ -11,7 +11,7 @@ $\color{#E0B9C3}{\textsf{𐙚ㅤinfoㅤmbti infoㅤ태형 3ㅤ✿𓈒ॱ}}$
 <p align="center">
 <a href="https://freeimage.host/i/CvjEyfS"><img src="https://iili.io/CvjEyfS.md.png" alt="CvjEyfS.md.png" border="0"></a>
 <p align="center">
-$\color{#E0B9C3}{\textsf{(˶˃ ᵕ ˂˶)ㅤ°ㅤinfo ++ infoㅤʔㅤ°ㅤ．ྀི︶꒱}}$
+$\color{#E0B9C3}{\textsf{(˶˃ ᵕ ˂˶)ㅤ° bunnii + nekomimi !ㅤ°ㅤ．ྀི︶꒱}}$
 <p align="center">
 $\color{#E0B9C3}{\textsf{‿◞ ֪ ♡ㅤ( she/her ɞɞ cisfemale)}}$
 <p align="center">

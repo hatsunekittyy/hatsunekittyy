@@ -11,7 +11,7 @@ $\color{#E0B9C3}{\textsf{basic dni criteria !ㅤ태형 3ㅤ✿𓈒ॱ}}$
 <p align="center">
 <a href="https://freeimage.host/i/CvjEyfS"><img src="https://iili.io/CvjEyfS.md.png" alt="CvjEyfS.md.png" border="0"></a>
 <p align="center">
-$\color{#E0B9C3}{\textsf{(˶˃ ᵕ ˂˶)ㅤ° 𝑏𝑢𝑛𝑛𝑖𝑖 + 𝑛𝑒𝑘𝑜𝑚𝑖𝑚𝑖 ! °ㅤ．ྀི︶꒱}}$
+$\color{#E0B9C3}{\textsf{(˶˃ ᵕ ˂˶)ㅤ° bunnii + nekomimi ! °ㅤ．ྀི︶꒱}}$
 <p align="center">
 $\color{#E0B9C3}{\textsf{‿◞ ֪ ♡ she/her ɞɞ cisfemale }}$
 <p align="center">
